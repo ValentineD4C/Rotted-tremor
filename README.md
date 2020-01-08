@@ -6,6 +6,6 @@
   2. Dota 2
   3. The Binding Of Isaac
    3. The Binding of Isaac Rebirth
-  CyberTiger42 Regularly hunts on his Quad ![Quad](https://www.razor.com/wp-content/uploads/2018/01/dirtquad_bk_product.png) and loves to go Hiking. He boasts about his proficiency about sneaking up on an animal while also on a motorized vehicle. He has boots but his only other pair of shoes are the ones he is wearing right now.
+CyberTiger42 Regularly hunts on his Quad ![Quad](https://www.razor.com/wp-content/uploads/2018/01/dirtquad_bk_product.png) and loves to go Hiking. He boasts about his proficiency about sneaking up on an animal while also on a motorized vehicle. He has boots but his only other pair of shoes are the ones he is wearing right now.
 
 Credit to my professor: @joeparislbcc
