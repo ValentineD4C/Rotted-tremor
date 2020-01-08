@@ -6,4 +6,4 @@
   2. Dota 2
   3. The Binding Of Isaac
    3. The Binding of Isaac Rebirth
-  Colby Regularly hunts on his Quad (![Quad](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjDl9Chv_TmAhWK4J4KHcDDCjwQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.razor.com%2Fproducts%2Felectric-rides%2Fdirt-quad%2F&psig=AOvVaw3aGrVJrY_oVpTBhQFYuadg&ust=1578589743214266) and loves to go Hiking. He boasts about his proficiency about sneaking up on an animal while also on a motorized vehicle. He has boots but his only other pair of shoes are the ones he is wearing right now.
+  Colby Regularly hunts on his Quad (![Quad](https://www.razor.com/wp-content/uploads/2018/01/dirtquad_bk_product.png)) and loves to go Hiking. He boasts about his proficiency about sneaking up on an animal while also on a motorized vehicle. He has boots but his only other pair of shoes are the ones he is wearing right now.
